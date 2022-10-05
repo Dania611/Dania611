@@ -8,7 +8,7 @@
 <https://www.youtube.com/watch?v=fVsONlc3OUY&ab_channel=MaciejWiniarczyk>
 >One of my main goals in life is to visit the Northern lights. Ever since I watched the Polar Express, one of my favourite movies, the Northern lights have been glued to the back of head.>
 
-![dreamfirstcar](/0d2a87e9f3b290102194a735db75d84d.jpg)
+![dreamfirstcar](/6931b22e154305dddd23b1817f33013b.jpg)
 
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
